@@ -1,5 +1,5 @@
 ### Novoline for roblox owner!!!
-YES lol
+YES lol (you prob wont get it)
 
 ### tbh i dont use html and js i just do lua!!
 
